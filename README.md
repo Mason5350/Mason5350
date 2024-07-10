@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on things.
 - 📫 How to reach me my number.
-- 😄 Pronouns: ...
+- 😄 Pronouns: idk
 - ⚡ Fun fact: Im allergic to cats and dogs.
 
 <!---
